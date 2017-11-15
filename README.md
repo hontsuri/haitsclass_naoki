@@ -1,0 +1,1 @@
+# haitsclass_naoki
